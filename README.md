@@ -25,3 +25,6 @@ https://drive.google.com/file/d/1eS3johbV3ezYvJUbrOLBnZYBJbKBzB3a/view?usp=shari
 https://drive.google.com/file/d/1mfwoBcHV6lRAnZEsN3-C4YoR4qyUH7vJ/view?usp=sharing
 
 #상업적으로 이용할 수 없습니다.
+
+
+기타 문의 사항 :  https://open.kakao.com/o/sEIfy0Df
