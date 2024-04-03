@@ -18,7 +18,7 @@ CHECK POINT
 서동현 : https://drive.google.com/file/d/1oQ2S6p7A098_IQVfhJzNnGinCK4HGk2B/view?usp=sharing
 
 OUTPUT //
-SUMMER (서동현 목소리) : https://drive.google.com/file/d/1L5P1Ihg73yDymr8h1mnmth82mZzDlmzO/view?usp=drive_link
+SUMMER_폴 블랑코 (서동현 목소리) : https://drive.google.com/file/d/1L5P1Ihg73yDymr8h1mnmth82mZzDlmzO/view?usp=drive_link
 
 시연영상
 https://drive.google.com/file/d/1eS3johbV3ezYvJUbrOLBnZYBJbKBzB3a/view?usp=sharing
