@@ -16,6 +16,8 @@ CHECK POINT
 성시경 : https://drive.google.com/file/d/10-5GGfiyN38-yCjICLNnetwufvZrw0OR/view?usp=sharing
 
 서동현 : https://drive.google.com/file/d/1oQ2S6p7A098_IQVfhJzNnGinCK4HGk2B/view?usp=sharing
+
+OUTPUT
 SUMMER (서동현 목소리) : https://drive.google.com/file/d/1L5P1Ihg73yDymr8h1mnmth82mZzDlmzO/view?usp=drive_link
 
 시연영상
